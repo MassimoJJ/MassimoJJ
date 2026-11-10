@@ -12,4 +12,4 @@
 
 ## Elsewhere
 
-[Behance](https://www.behance.net/massimojaver_xartist) · [ArtStation](https://www.artstation.com/massimo83) · [LinkedIn](https://www.linkedin.com/in/massimo-javer-277a16326/) · [Instagram](https://www.instagram.com/xartist166/)
+[Behance](https://www.behance.net/massimojaver_xartist) · [ArtStation](https://www.artstation.com/massimo83) · [LinkedIn](https://www.linkedin.com/in/massimo-javer-277a16326/) · [Instagram @xartist166](https://www.instagram.com/xartist166/) · [Instagram @ghammahmoud](https://www.instagram.com/ghammahmoud/)
